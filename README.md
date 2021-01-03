@@ -51,4 +51,4 @@ This premium version is only $4.99.
   
   
   
-  https://www.paypal.com/donate?hosted_button_id=NKKL3EDBAZPXJ
+ 
